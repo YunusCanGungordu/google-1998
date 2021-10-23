@@ -4,4 +4,4 @@ In 1998, most popular search engine Google was like that. For nostalgia, i creat
 
 **thank you.**
 
-![Google.com] (https://prnt.sc/1x6kmqi)
+![Google.com](https://prnt.sc/1x6kmqi)
